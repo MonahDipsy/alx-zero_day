@@ -1,1 +1,1 @@
-Steps to create
+Steps to command
